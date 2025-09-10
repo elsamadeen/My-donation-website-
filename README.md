@@ -1,2 +1,4 @@
 # My-donation-website-
-Reaching out to homeless and less privileged people across the world 
+Hope for Humanity – Bringing food, shelter, education, and healthcare to the less privileged and homeless worldwide.
+Together, we can restore dignity and build a brighter future. 💙
+
